@@ -1,0 +1,1 @@
+https://embeddedsystempraticals.blogspot.com 
